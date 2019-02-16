@@ -1,0 +1,1 @@
+# VerificaB_Bragagnolo_riccardo
